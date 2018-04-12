@@ -1,7 +1,7 @@
 # Ralston Clarke
 ## Full Stack Engineer, Product Manager
 
-_[ralston.clarke@gmail.com](ralston.clarke@gmail.com) | (713) 410 8981_
+_[ralston.clarke@gmail.com](ralston.clarke@gmail.com) | 
 
 ------
 
